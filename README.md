@@ -1,1 +1,0 @@
-# buybuyname.github.io
